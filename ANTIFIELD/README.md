@@ -1,2 +1,2 @@
-### FieldARt / ANTIFIELD
+### FieldArt / ANTIFIELD
 [...]
