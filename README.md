@@ -1,4 +1,4 @@
-# FieldArt
+# Field Art
 
 ### ABSTRACT
 
