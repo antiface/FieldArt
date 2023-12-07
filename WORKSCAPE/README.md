@@ -2,7 +2,7 @@ WORKSCAPE
 =========
 *Workspace as 3D Material Memory or Analog Databse: "The Geological Method; Geo-Grammar or Geo-Grammatical Forms"*
 * __*The Geological Method*__: Similar to Michel Foucault's __*Archaeology of Knowledge*__ except it's a __*Geology of Knowledge*__;
-* *3D Surfaces + "The Art Operator as Land Surveyor";
+* *3D Surfaces + "The Art Operator as Land Surveyor"*;
 * *Crackland & The Crackland Journals*: __*"Crackland: Land of Fissures"*__
 * [...]
 
