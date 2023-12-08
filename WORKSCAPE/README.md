@@ -21,6 +21,19 @@ WORKSCAPE
 * In the 2001-2004 period, I came up with a concept I called __*CRACKLAND: THE LAND OF FISSURES*__;
 * It had nothing to do with the *drug* and everything to do with an imaginary *Abstract Landscape*, a land made up of *floating land-masses / land-fragments called* *__CRACKLAND__*;
 * I realize now more than ever that this __*Geo-Grammar*__ I called it, or these __*Geo-Grammatical Forms*__, were really inspired by my own __*WORKSPACE*__ and __*work methodologies*__;
+
+- - - - - - - - -
+> "Surveying or land surveying is the technique, profession, art, and science of determining the terrestrial two-dimensional or three-dimensional positions of points and the distances and angles
+> between them. A land surveying professional is called a land surveyor. These points are usually on the surface of the Earth, and they are often used to establish maps and boundaries for
+> ownership, locations, such as the designed positions of structural components for construction or the surface location of subsurface features, or other purposes required by government or
+> civil law, such as property sales." - Ref. [Surveying - Wikipedia](https://en.wikipedia.org/wiki/Surveying).
+- - - - - - - - -
+
+* __*The Geological Method*__ is a form of mental projection, *a projection of the Mind onto one's inward space*;
+* That's where many of my *Concepts* come from in my novel-writing, which I call *novelistic phenomenology*, a type of writing that includes a form of metafiction that is a *phenomenology of the novel, or of the novel-writing itself, i.e. "the novel as it appears in the mind of the author"*;
+* For each new novel, I basically come up with its own *physical cosmology*; that is, I create unique __*UNIVERSES*__;
+* __*CRACKLAND: THE LAND OF FISSURES*__ was merely one of many unique *worlds* that I created in the novel called __*The History-Project*__;
+* Other worlds in that novel were __*St-Elsewhere*__ (*"Montreal is an Elsewhere"*) and __*The Dream Assembly*__;
 * [...]
 
 ![THE GEOLOGICAL METHOD](https://historiotheque.files.wordpress.com/2023/12/the_geological_method_accessed_08dec23a-03h45a_filter_corrected_signed_600px_high-03h45a.png)
