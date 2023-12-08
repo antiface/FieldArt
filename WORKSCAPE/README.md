@@ -29,15 +29,18 @@ WORKSCAPE
 > civil law, such as property sales." - Ref. [Surveying - Wikipedia](https://en.wikipedia.org/wiki/Surveying).
 - - - - - - - - -
 
+![THE GEOLOGICAL METHOD](https://historiotheque.files.wordpress.com/2023/12/the_geological_method_accessed_08dec23a-03h45a_filter_corrected_signed_600px_high-03h45a.png)
+
 * __*The Geological Method*__ is a form of mental projection, *a projection of the Mind onto one's inward space*;
 * That's where many of my *Concepts* come from in my novel-writing, which I call *novelistic phenomenology*, a type of writing that includes a form of metafiction that is a *phenomenology of the novel, or of the novel-writing itself, i.e. "the novel as it appears in the mind of the author"*;
 * For each new novel, I basically come up with its own *physical cosmology*; that is, I create unique __*UNIVERSES*__;
 * __*CRACKLAND: THE LAND OF FISSURES*__ was merely one of many unique *worlds* that I created in the novel called __*The History-Project*__;
 * Other worlds in that novel were __*St-Elsewhere*__ (*"Montreal is an Elsewhere"*) and __*The Dream Assembly*__;
-* [...]
 
-![THE GEOLOGICAL METHOD](https://historiotheque.files.wordpress.com/2023/12/the_geological_method_accessed_08dec23a-03h45a_filter_corrected_signed_600px_high-03h45a.png)
-
+- - - - - - - - -
+> "A fracture is any separation in a geologic formation, such as a joint or a fault that divides the rock into two or more pieces. A fracture will sometimes form a deep fissure or crevice in
+> the rock. Fractures are commonly caused by stress exceeding the rock strength, causing the rock to lose cohesion along its weakest plane." - Ref. [Fracture (Geology)  -  Wikipedia]
+> (https://en.wikipedia.org/wiki/Fracture_(geology)).
 - - - - - - - - -
 
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
