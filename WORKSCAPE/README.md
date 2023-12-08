@@ -1,6 +1,6 @@
 WORKSCAPE
 =========
-*Workspace as 3D Material Memory or Analog Databse: "The Geological Method; Geo-Grammar or Geo-Grammatical Forms"*
+*Workspace as 3D Material Memory or Analog Database: "The Geological Method; Geo-Grammar or Geo-Grammatical Forms"*
 * __*The Geological Method*__: Similar to Michel Foucault's __*Archaeology of Knowledge*__ except it's a __*Geology of Knowledge*__;
 * *3D Surfaces + "The Art Operator as Land Surveyor"*;
 * *Crackland & The Crackland Journals*: __*"Crackland: Land of Fissures"*__
@@ -19,7 +19,7 @@ WORKSCAPE
 * As I work, I organize and re-organize things, and slowly over time *stacks/piles* build up by a natural process of __*ACCRETION*__;
 * I manipulate these *Stacks & Their Substacks* as though I were a *Geologist*;
 * In the 2001-2004 period, I came up with a concept I called __*CRACKLAND: THE LAND OF FISSURES*__;
-* It had nothing to do with the *drug* and everything to do with an imaginary *Abstract Landscape*, a land made up of *floating land-masses / land-fragments called __CRACKLAND__*;
+* It had nothing to do with the *drug* and everything to do with an imaginary *Abstract Landscape*, a land made up of *floating land-masses / land-fragments called* *__CRACKLAND__*;
 * I realize now more than ever that this __*Geo-Grammar*__ I called it, or these __*Geo-Grammatical Forms*__, were really inspired by my own __*WORKSPACE*__ and __*work methodologies*__;
 * [...]
 
