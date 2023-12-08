@@ -49,6 +49,7 @@ __CRACKLAND: THE LAND OF FISSURES__
 * *The personality is a self-reflexive system of representation.  This is what makes it historical.  It is subjective because it self-presents, or presents itself to itself and to the Other.  At a certain age, a choice is made, the choice of autonomy, the choice that makes me an independent geological fragment or plate.  The very nature of the subjective experience is “relatable”.  We seek companionship to be able to tell our stories, our narratives.  But there is such a thing as narrative failure, when everyone is so caught up with their own stories that listening does not take place.  Then the self can become alienated or disillusioned.  A sort of bankruptcy of the personality or subjective historical system takes place.  Social stigma can also cause this disenfranchisement, this slow dehumanization*;
 * __*IN THE ART OPERATION @ THE HISTORIOTHEQUE, I, CHIEF ART OPERATOR, AM LIKE THIS CHILD, GROPING AROUND (IN) THE GEO-GRAMMAR OF EXISTENCE*__;
 * *Fictional Realms/Worlds in my Novelistic Phenomenology are Mental (Spiritual) Projections Onto the Inward Plane of (my) Being*;
+* *Crackland (The Land of Fissures), St-Elsewhere, The Dream Assembly, even The Exhibition in Tonal Cinema which came before The History-Project novel, and also NOUS, ANTINOUS, Antiface-Cloud, Construction-Land, and Archives-Land in its sequel novel The Archives-Project*: __THESE ARE ALL SUCH PROJECTIONS, OF THE GEO-GRAMMATICAL FORMS FOREVER SURROUNDING ME__;
 * [...]
 
 - - - - - - - - -
