@@ -36,8 +36,14 @@ WORKSCAPE
 * For each new novel, I basically come up with its own *physical cosmology*; that is, I create unique __*UNIVERSES*__;
 * __*CRACKLAND: THE LAND OF FISSURES*__ was merely one of many unique *worlds* that I created in the novel called __*The History-Project*__;
 * Other worlds in that novel were __*St-Elsewhere*__ (*"Montreal is an Elsewhere"*) and __*The Dream Assembly*__;
+
+__CRACKLAND: THE LAND OF FISSURES__
 * [...]
 
+- - - - - - - - -
+> "The law of superposition is an axiom that forms one of the bases of the sciences of geology, archaeology, and other fields pertaining to geological stratigraphy. In its plainest form, it
+> states that in undeformed stratigraphic sequences, the oldest strata will lie at the bottom of the sequence, while newer material stacks upon the surface to form new deposits over time." - Ref.
+> [Law of superposition  -  Wikipedia](https://en.wikipedia.org/wiki/Law_of_superposition).
 - - - - - - - - -
 > "A fracture is any separation in a geologic formation, such as a joint or a fault that divides the rock into two or more pieces. A fracture will sometimes form a deep fissure or crevice in
 > the rock. Fractures are commonly caused by stress exceeding the rock strength, causing the rock to lose cohesion along its weakest plane." - Ref. [Fracture (Geology)  -  Wikipedia]
