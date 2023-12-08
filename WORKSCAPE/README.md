@@ -12,7 +12,7 @@ WORKSCAPE
 * __*The Geological Method*__ came about after I was reading a lot of Michel Foucault, Friedrich Nietzsche, and Sigmund Freud (I know, kind of a strange mix!);
 * I began seeing three methods: *The Genealogical Method*, *The Archaeological Method*, and now my own twist, *The Geological Method*;
 * These were kind of like *Metaphors for Thinking*, or for *Historical Research*;
-* My *Geological Method* would treat the phenomenal world as though it were made up of *sedimentary layers*;
+* My *Geological Method* would treat the phenomenal world as though it were made up of *sedimentary layers, made up of geo-grammatical forms*;
 * I only realized later that the *True Geology* was the geology of my __*WORKSPACE*__;
 * It's not that I'm a messy person, it's just my research and art methodology;
 * When I'm in the studio or research lab, I *manipulate stacks* of things, stacks of books, folders and papers, stacks of index cards and paintings and whatnot;
