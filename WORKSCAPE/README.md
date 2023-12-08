@@ -46,8 +46,7 @@ __CRACKLAND: THE LAND OF FISSURES__
 > [Law of superposition  -  Wikipedia](https://en.wikipedia.org/wiki/Law_of_superposition).
 - - - - - - - - -
 > "A fracture is any separation in a geologic formation, such as a joint or a fault that divides the rock into two or more pieces. A fracture will sometimes form a deep fissure or crevice in
-> the rock. Fractures are commonly caused by stress exceeding the rock strength, causing the rock to lose cohesion along its weakest plane." - Ref. [Fracture (Geology)  -  Wikipedia]
-> (https://en.wikipedia.org/wiki/Fracture_(geology)).
+> the rock. Fractures are commonly caused by stress exceeding the rock strength, causing the rock to lose cohesion along its weakest plane." - Ref. [Fracture (Geology)  -  Wikipedia](https://en.wikipedia.org/wiki/Fracture_(geology)).
 - - - - - - - - -
 
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
