@@ -4,7 +4,6 @@ WORKSCAPE
 * __*The Geological Method*__: Similar to Michel Foucault's __*Archaeology of Knowledge*__ except it's a __*Geology of Knowledge*__;
 * *3D Surfaces + "The Art Operator as Land Surveyor"*;
 * *Crackland & The Crackland Journals*: __*"Crackland: Land of Fissures"*__
-* [...]
 
 ![HISTORIOTOPIA](https://historiotheque.files.wordpress.com/2016/01/historiotopia_17oct15c6.jpg)
 
