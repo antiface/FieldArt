@@ -50,7 +50,7 @@ __CRACKLAND: THE LAND OF FISSURES__
 * __*IN THE ART OPERATION @ THE HISTORIOTHEQUE, I, CHIEF ART OPERATOR, AM LIKE THIS CHILD, GROPING AROUND (IN) THE GEO-GRAMMAR OF EXISTENCE*__;
 * *Fictional Realms/Worlds in my Novelistic Phenomenology are Mental (Spiritual) Projections Onto the Inward Plane of (my) Being*;
 * *Crackland (The Land of Fissures), St-Elsewhere, The Dream Assembly, even The Exhibition in Tonal Cinema which came before The History-Project novel, and also NOUS, ANTINOUS, Antiface-Cloud, Construction-Land, and Archives-Land inside its sequel novel The Archives-Project*: __THESE ARE ALL SUCH PROJECTIONS, OF THE GEO-GRAMMATICAL FORMS FOREVER SURROUNDING ME__;
-* *This is the Genesis of The Geological Method in the Art Operation @ The Historiotheque*;
+* This is the Genesis of The Geological Method in the Art Operation @ [__The Historiotheque__](https://historiotheque.ca/);
 * [...]
 
 - - - - - - - - -
