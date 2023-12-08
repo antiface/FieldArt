@@ -1,4 +1,4 @@
-WORKSCAPE
+WORKSPACE
 =========
 *Workspace as 3D Material Memory or Analog Database: "The Geological Method; Geo-Grammar or Geo-Grammatical Forms"*
 * __*The Geological Method*__: Similar to Michel Foucault's __*Archaeology of Knowledge*__ except it's a __*Geology of Knowledge*__;
